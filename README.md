@@ -11,3 +11,9 @@ Things I love
 1. Football
 2. Basketball
 3. Video Games
+ 
+
+Things I hate
+- Homework
+- Cleaning
+- Working
