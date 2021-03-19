@@ -7,6 +7,7 @@ My Schedule: ELA, PE, Algebra, Chemistry, BHP, SEP, Global, Spanish
 [HSTAT Site](https://www.hstat.org/)
 
 
+Things I love
 1. Football
 2. Basketball
 3. Video Games
